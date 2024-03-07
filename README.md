@@ -1,2 +1,2 @@
 # Oasis_infobyte_intership
-Here iam complete 5 tasks 
+Here is the tasks i have completed successfully.
